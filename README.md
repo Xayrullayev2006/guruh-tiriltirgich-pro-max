@@ -1,0 +1,1 @@
+# guruh-tiriltirgich-pro-max
